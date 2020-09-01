@@ -1,5 +1,5 @@
 ## আসসালামু আলাইকুম
-গতদিন WIFI HACKING 2020 BY OFFICIAL EVIL DEVIL যে কোর্সট medifire e দেয়া হয়েছিল ভার GOOGLE DRIVE link নিচের প্রজেক্ট এ দেয়া হল
+
 যা যা শিখতে পারবেন এই কোর্স থেকে 
 <!DOCTYPE html>
 <html>
