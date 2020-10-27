@@ -1,7 +1,7 @@
 ## আসসালামু আলাইকুম
 
 যা যা শিখতে পারবেন এই কোর্স থেকে 
-<!DOCTYPE html>
+
 <html>
 <body>
 <table style="width:100%">
@@ -101,15 +101,15 @@
 </html>
 
 
-Here your link>>>> [Download wifi Cracking 2020 By Official EVIL DEVIL](https://drive.google.com/drive/folders/1uqqakHHtqRiC92qUQd_AMwstmjfUhJP2?usp=sharing) 
-
+Here your link>>>> [Download wifi Cracking 2020 By Official EVIL DEVIL](https://drive.google.com/file/d/1pXjrGNRz8zoRiPjj9vzzi8kMcV_-vF4z/view?usp=sharing) 
+Password ********  (৮টা star)
 
 
 ### Support or Contact
 
 Having trouble with download?
 
-Check out my email :- minhajsakib1917@gmail.com
+Check out my email :- minhajsakib74@gmail.com
 
 and I’ll help you sort it out.
 
